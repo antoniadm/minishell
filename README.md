@@ -16,4 +16,4 @@ If you have problems, questions, ideas or suggestions please contact me:
 
 AUTHOR
 
-Antoniadis Moschos AEM 8761
+Antoniadis M
